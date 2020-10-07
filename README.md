@@ -5,4 +5,18 @@ An idea I had for a potential feature on Duolingo, one of my favorite mobile app
 
 ![](4.jpeg)
 
+![](3.jpeg)
+
+![](2.jpeg)
+
+![](1.jpeg)
+
+![](5.jpeg)
+
+![](6.jpeg)
+
+
+
+
+
 
